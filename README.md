@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RPRCastroo
+- 👀 I’m interested in making an app
+- 🌱 I’m currently learning how to make apps
+- 💞️ I’m looking to collaborate on apps
+- 📫 How to reach me alsoacek@gmail.com
